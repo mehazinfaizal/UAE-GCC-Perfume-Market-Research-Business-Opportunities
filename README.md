@@ -132,7 +132,7 @@ The UAE fragrance market is **highly competitive and fragmented** - blending int
 | 3 | Rasasi Perfumes | 55 – 580+ | Entry to semi-premium |
 | 4 | Al Haramain | 33 – 1,190+ | Budget to premium oud/attar |
 | 5 | Swiss Arabian (SAPG) | 35 – 490+ | Budget to semi-premium |
-| — | Lattafa | 40 – 300+ | Budget to mid; value-for-money |
+| 6 | Lattafa | 40 – 300+ | Budget to mid; value-for-money |
 
 ---
 
