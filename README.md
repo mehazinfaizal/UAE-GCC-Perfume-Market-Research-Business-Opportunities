@@ -1,4 +1,4 @@
-# UAE & GCC Perfume Market - Research & Business Opportunities
+# UAE & GCC Perfume Market - Research & Business Opportunities Case Study
 
 A market research analysis covering growth trends, consumer segmentation, competitive landscape, pricing tiers, and business opportunities across the Gulf perfume market - from traditional oud to modern Arabic fusion scents.
 
